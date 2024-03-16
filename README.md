@@ -1,6 +1,8 @@
-## *Intro*
+# 🙌*Intro*
 
-Hi, everyone!
+*(Traveling light in daily life)*
+
+🤺*Hi, everyone! My official name is Zekai Shen and my specialty is Computational Chemistry | Medicinal Chemistry* 
 
 ## *Personal Information*
 
